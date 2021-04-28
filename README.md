@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Rekha
-- 👀 I’m intrested in learning new things
-- 📫 How to reach me???...https://www.linkedin.com/in/rekha-swaminathan-9918671b1
+- 👀 I’m interested in learning new things
+- 📫 To reach me-----...https://www.linkedin.com/in/rekha-swaminathan-9918671b1
           
 
 <!---
